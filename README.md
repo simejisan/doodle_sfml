@@ -10,4 +10,4 @@
 - If you fall out - game over!
 - Ez but relax
 
-2. Preview
+2. Preview: https://www.youtube.com/watch?time_continue=42&v=wpsq0_RC94o
